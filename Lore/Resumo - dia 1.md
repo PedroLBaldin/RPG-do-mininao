@@ -1,0 +1,3 @@
+Fomos na viagem de formatura para a Ilha do Mel. Para chegar lá, porém, precisamos ir por uma balsa. Nessa balsa, encontramos os [[TC - Tanqueray constabulary]] pela primeira vez, onde o vocalista [[Jonas]] reconheceu a [[Luiza]]. Tiraram fotos e descobrimos que iam fazer um show, do qual compramos os ingressos.
+
+Chegando na ilha, fomos para o [[Hotel Malibru]], conhecendo o lugar. Então, depois de jantar, fomos para praia, onde vimos de longe, pela primeira vez, o [[Farol]]. Voltamos, e então dormimos, encerrando o primeiro dia.
